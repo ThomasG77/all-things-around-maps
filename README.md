@@ -59,6 +59,7 @@
 * Scott Reinhard Maps https://scottreinhardmaps.com
 * Woodcraft Artisans https://woodcraftartisans.com/online-store/
 * Raven Maps & Images https://www.ravenmaps.com
+* Map anatomy - Jonathan Simmonds https://www.etsy.com/shop/medillustrations
 
 ### Artistic maps
 
