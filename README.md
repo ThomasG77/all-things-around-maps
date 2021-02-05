@@ -20,7 +20,7 @@
 * Papercraft Mountains https://www.etsy.com/shop/PapercraftMountains
 * Cartonerd http://cartonerd.imagekind.com
 * Boondocks and Cities https://teespring.com/stores/boondocks-and-cities
-Dar Twig https://shop.twigcollaborative.com/collections/graphics/products/* beirut-beiti-poster
+* Dar Twig https://shop.twigcollaborative.com/collections/graphics/products/beirut-beiti-poster
 * Anton Thomas Art https://anton-thomas.myshopify.com/
 * Lines by Tim https://www.etsy.com/shop/LinesByTim
 * The Map Kiwi https://www.andrewdc.co.nz/mapkiwi-store/
