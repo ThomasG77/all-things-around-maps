@@ -83,6 +83,7 @@
 * Elly Walton https://ellywalton-illustrations.com
 * Libby VanderPloeg https://www.libbyvanderploeg.com/maps
 * Mary Jones https://www.maryjonesart.com
+* David Thomas Smith https://www.david-thomas-smith.com/anthropocene
 
 
 ### Knitting, embroidery
