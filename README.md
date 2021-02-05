@@ -65,6 +65,9 @@
 * Claire Brewster http://clairebrewster.com/paper-sculptures/
 * Stuart Arnett https://www.stuartarnett.com
 * Dilo https://www.lespoissonsdedilo.com/copie-de-memoire-de-cartes-1
+* Emily Garfield https://www.emilygarfield.com
+* Matthew Cusick https://www.mattcusick.com/portfolio/map-works
+* Ghislaine ESCANDE https://www.escande.fr
 
 
 ## Knitting, embroidery
