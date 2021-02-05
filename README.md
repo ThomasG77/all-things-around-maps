@@ -54,6 +54,7 @@
 * Antoine Corbineau https://antoinecorbineau.com/category/00-map/
 * James Niehues https://jamesniehues.com/collections/art
 * Landfall by Peter Bolt https://www.landfall.co.uk
+* Scott Reinhard Maps https://scottreinhardmaps.com
 
 ## Knitting, embroidery
 
