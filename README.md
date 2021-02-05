@@ -56,6 +56,7 @@
 * Landfall by Peter Bolt https://www.landfall.co.uk
 * Scott Reinhard Maps https://scottreinhardmaps.com
 * Woodcraft Artisans https://woodcraftartisans.com/online-store/
+* Raven Maps & Images https://www.ravenmaps.com
 
 ## Knitting, embroidery
 
