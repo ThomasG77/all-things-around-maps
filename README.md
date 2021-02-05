@@ -51,6 +51,7 @@ Dar Twig https://shop.twigcollaborative.com/collections/graphics/products/* beir
 * Turn-of-the-Centuries https://turnofthecenturies.squarespace.com
 * Muir Way https://muir-way.com
 * Pablo Raison (mainly because shop to dedicated to it work) https://www.instagram.com/pabldrawing/
+* Antoine Corbineau https://antoinecorbineau.com/category/00-map/
 
 ### Games
 
@@ -59,7 +60,7 @@ Dar Twig https://shop.twigcollaborative.com/collections/graphics/products/* beir
 ### Globes
 
 * Pyro Globes http://www.pyro.global
-Bellerby & Co. globemakers https://bellerbyandco.com/
+* Bellerby & Co. globemakers https://bellerbyandco.com/
 
 ## Credits:
 
