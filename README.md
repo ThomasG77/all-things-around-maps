@@ -82,6 +82,7 @@
 * Angela Smyth https://www.angelasmythart.co.uk/angela-map-hebden-ceramic-wall/
 * Elly Walton https://ellywalton-illustrations.com
 * Libby VanderPloeg https://www.libbyvanderploeg.com/maps
+* Mary Jones https://www.maryjonesart.com
 
 
 ### Knitting, embroidery
@@ -92,6 +93,7 @@
 ### Games
 
 * Seven Bridges Board Game https://puzzlingpixel.com/product/seven-bridges-pre-order/
+* Earth Puzzle https://n-e-r-v-o-u-s.com/shop/product.php?code=368
 
 ### Globes
 
