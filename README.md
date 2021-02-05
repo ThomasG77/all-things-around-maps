@@ -52,6 +52,8 @@
 * Muir Way https://muir-way.com
 * Pablo Raison (mainly because shop to dedicated to it work) https://www.instagram.com/pabldrawing/
 * Antoine Corbineau https://antoinecorbineau.com/category/00-map/
+* James Niehues https://jamesniehues.com/collections/art
+* Landfall by Peter Bolt https://www.landfall.co.uk
 
 ### Games
 
