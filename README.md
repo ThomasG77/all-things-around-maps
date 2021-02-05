@@ -68,6 +68,8 @@
 * Emily Garfield https://www.emilygarfield.com
 * Matthew Cusick https://www.mattcusick.com/portfolio/map-works
 * Ghislaine ESCANDE https://www.escande.fr
+* Gareth Fuller https://fullermaps.com
+* Cannon Maps http://www.cannonmaps.com
 
 
 ## Knitting, embroidery
