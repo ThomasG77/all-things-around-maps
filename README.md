@@ -55,6 +55,7 @@
 * James Niehues https://jamesniehues.com/collections/art
 * Landfall by Peter Bolt https://www.landfall.co.uk
 * Scott Reinhard Maps https://scottreinhardmaps.com
+* Woodcraft Artisans https://woodcraftartisans.com/online-store/
 
 ## Knitting, embroidery
 
