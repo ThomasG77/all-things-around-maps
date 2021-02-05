@@ -57,10 +57,13 @@
 * Scott Reinhard Maps https://scottreinhardmaps.com
 * Woodcraft Artisans https://woodcraftartisans.com/online-store/
 * Raven Maps & Images https://www.ravenmaps.com
+* Ed Fairburn https://edfairburn.com
+* Chris Kenny https://www.chriskenny.co.uk/map-works
 
 ## Knitting, embroidery
 
 * Victoria Rose Richards https://www.instagram.com/victoriaroserichards/
+* KATHRYN CLARK http://www.kathrynclark.com/
 
 ### Games
 
