@@ -55,6 +55,10 @@
 * James Niehues https://jamesniehues.com/collections/art
 * Landfall by Peter Bolt https://www.landfall.co.uk
 
+## Knitting, embroidery
+
+* Victoria Rose Richards https://www.instagram.com/victoriaroserichards/
+
 ### Games
 
 * Seven Bridges Board Game https://puzzlingpixel.com/product/seven-bridges-pre-order/
