@@ -57,8 +57,15 @@
 * Scott Reinhard Maps https://scottreinhardmaps.com
 * Woodcraft Artisans https://woodcraftartisans.com/online-store/
 * Raven Maps & Images https://www.ravenmaps.com
+* Jazzberry Blue https://www.jazzberryblue.com/
 * Ed Fairburn https://edfairburn.com
 * Chris Kenny https://www.chriskenny.co.uk/map-works
+* Julia McKenzie http://juliamckenzie.co.uk
+* Nikki Rosato https://www.nikkirosato.com
+* Claire Brewster http://clairebrewster.com/paper-sculptures/
+* Stuart Arnett https://www.stuartarnett.com
+* Dilo https://www.lespoissonsdedilo.com/copie-de-memoire-de-cartes-1
+
 
 ## Knitting, embroidery
 
