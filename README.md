@@ -70,6 +70,12 @@
 * Ghislaine ESCANDE https://www.escande.fr
 * Gareth Fuller https://fullermaps.com
 * Cannon Maps http://www.cannonmaps.com
+* Ken Perkins http://www.kenperkins.net/Pages/maps.html
+* Kate McLean https://sensorymaps.com
+* Luis Dilger https://luisdilger.com
+* Angela Smyth https://www.angelasmythart.co.uk/angela-map-hebden-ceramic-wall/
+* Elly Walton https://ellywalton-illustrations.com
+* Libby VanderPloeg https://www.libbyvanderploeg.com/maps
 
 
 ## Knitting, embroidery
