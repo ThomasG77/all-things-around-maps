@@ -2,6 +2,8 @@
 
 ## List of stuff using maps (objects, arts, games,...)
 
+<h3 id="miscellanous">Miscellanous</h3>
+
 * somethingaboutmaps https://somethingaboutmaps.wordpress.com/storefront/
 * Muncie Map Co. http://munciemap.com/shop
 * Mapsburgh https://www.etsy.com/shop/mapsburgh
@@ -57,6 +59,9 @@
 * Scott Reinhard Maps https://scottreinhardmaps.com
 * Woodcraft Artisans https://woodcraftartisans.com/online-store/
 * Raven Maps & Images https://www.ravenmaps.com
+
+<h3 id="artistic">Artistic maps</h3>
+
 * Jazzberry Blue https://www.jazzberryblue.com/
 * Ed Fairburn https://edfairburn.com
 * Chris Kenny https://www.chriskenny.co.uk/map-works
@@ -78,16 +83,16 @@
 * Libby VanderPloeg https://www.libbyvanderploeg.com/maps
 
 
-## Knitting, embroidery
+<h3 id="knitting-embroidery">Knitting, embroidery</h3>
 
 * Victoria Rose Richards https://www.instagram.com/victoriaroserichards/
 * KATHRYN CLARK http://www.kathrynclark.com/
 
-### Games
+<h3 id="games">Games</h3>
 
 * Seven Bridges Board Game https://puzzlingpixel.com/product/seven-bridges-pre-order/
 
-### Globes
+<h3 id="globes">Globes</h3>
 
 * Pyro Globes http://www.pyro.global
 * Bellerby & Co. globemakers https://bellerbyandco.com/
