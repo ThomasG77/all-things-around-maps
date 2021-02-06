@@ -84,6 +84,7 @@
 * Libby VanderPloeg https://www.libbyvanderploeg.com/maps
 * Mary Jones https://www.maryjonesart.com
 * David Thomas Smith https://www.david-thomas-smith.com/anthropocene
+* Armelle Caron https://www.armellecaron.fr
 
 
 ### Knitting, embroidery
