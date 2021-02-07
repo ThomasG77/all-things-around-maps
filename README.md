@@ -75,6 +75,7 @@
 * Emily Garfield https://www.emilygarfield.com
 * Matthew Cusick https://www.mattcusick.com/portfolio/map-works
 * Marion Cobb https://www.instagram.com/marioncobb.art/
+* Daniel Baxter http://www.danielbaxter.com/map-drawings
 * BoWo Studio https://www.instagram.com/studiobowo/
 * Ghislaine Escande https://www.escande.fr
 * Gareth Fuller https://fullermaps.com
