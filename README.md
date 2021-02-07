@@ -74,6 +74,7 @@
 * Dilo https://www.lespoissonsdedilo.com/copie-de-memoire-de-cartes-1
 * Emily Garfield https://www.emilygarfield.com
 * Matthew Cusick https://www.mattcusick.com/portfolio/map-works
+* Marion Cobb https://www.instagram.com/marioncobb.art/
 * Ghislaine ESCANDE https://www.escande.fr
 * Gareth Fuller https://fullermaps.com
 * Cannon Maps http://www.cannonmaps.com
