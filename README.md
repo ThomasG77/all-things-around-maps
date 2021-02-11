@@ -91,6 +91,7 @@
 * Mary Jones https://www.maryjonesart.com
 * David Thomas Smith https://www.david-thomas-smith.com/anthropocene
 * Armelle Caron https://www.armellecaron.fr
+* Marcoleptique https://www.marcoleptique.com
 
 
 ### Knitting, embroidery
