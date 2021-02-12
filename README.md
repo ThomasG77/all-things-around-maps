@@ -92,6 +92,7 @@
 * David Thomas Smith https://www.david-thomas-smith.com/anthropocene
 * Armelle Caron https://www.armellecaron.fr
 * Marcoleptique https://www.marcoleptique.com
+* Sylvain Guyot https://peinturesylvainguyot.wordpress.com
 
 
 ### Knitting, embroidery
