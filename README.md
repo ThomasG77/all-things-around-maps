@@ -94,6 +94,7 @@
 * Marcoleptique https://www.marcoleptique.com
 * Sylvain Guyot https://peinturesylvainguyot.wordpress.com
 * Louisa Boyd https://louisaboyd.bigcartel.com/product/cartography-i
+* Paula Scher http://www.artnet.com/artists/paula-scher/ (did not found an offficial site)
 
 
 ### Knitting, embroidery
