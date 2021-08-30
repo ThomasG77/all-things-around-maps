@@ -62,6 +62,7 @@
 * Map anatomy - Jonathan Simmonds https://www.etsy.com/shop/medillustrations
 * Atelier Cartøgraphik https://www.cartographik.com
 * Maps in the Wild https://mappery.org/
+* Dan Bell https://linktr.ee/middleearthsmaps
 
 ### Artistic maps
 
