@@ -96,7 +96,7 @@
 * Louisa Boyd https://louisaboyd.bigcartel.com/product/cartography-i
 * Paula Scher http://www.artnet.com/artists/paula-scher/ (did not found an offficial site)
 * Tiffany Chung http://www.trfineart.com/artist/tiffany-chung/#artist-works
-
+* Dave Draws https://davedraws.co.uk/pages/portfolio
 
 ### Knitting, embroidery
 
