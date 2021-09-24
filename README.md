@@ -92,7 +92,7 @@
 * Mary Jones https://www.maryjonesart.com
 * David Thomas Smith https://www.david-thomas-smith.com/anthropocene
 * Armelle Caron https://www.armellecaron.fr
-* Marcoleptique https://www.marcoleptique.com
+* Marcoleptique (Marc Guerin) ~~https://www.marcoleptique.com~~ (down) Instead Google search... https://www.google.com/search?q=marc+guerin+marcoleptique&tbm=isch
 * Sylvain Guyot https://peinturesylvainguyot.wordpress.com
 * Louisa Boyd https://louisaboyd.bigcartel.com/product/cartography-i
 * Paula Scher http://www.artnet.com/artists/paula-scher/ (did not found an offficial site)
