@@ -63,6 +63,7 @@
 * Atelier Cartøgraphik https://www.cartographik.com
 * Maps in the Wild https://mappery.org/
 * Dan Bell https://linktr.ee/middleearthsmaps
+* GeoCoe — Geography-inspired art — Lidar, rivers, volcanoes, maps, and travel! https://dancoecarto.com (shop at https://society6.com/geocoe/prints)
 
 ### Artistic maps
 
