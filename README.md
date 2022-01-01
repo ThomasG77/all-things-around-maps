@@ -99,6 +99,7 @@
 * Paula Scher http://www.artnet.com/artists/paula-scher/ (did not found an offficial site)
 * Tiffany Chung http://www.trfineart.com/artist/tiffany-chung/#artist-works
 * Dave Draws https://davedraws.co.uk/pages/portfolio
+* Julien Dupont Kobri https://kartokobri.wordpress.com/
 
 ### Knitting, embroidery
 
