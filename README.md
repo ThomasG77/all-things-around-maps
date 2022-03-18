@@ -115,6 +115,7 @@
 
 * Pyro Globes http://www.pyro.global
 * Bellerby & Co. globemakers https://bellerbyandco.com/
+* JULIA FORTE globemakerhttps://www.juliaforteglobes.com/
 
 ## Credits:
 
