@@ -104,7 +104,11 @@
 ### Knitting, embroidery
 
 * Victoria Rose Richards https://www.instagram.com/victoriaroserichards/
-* KATHRYN CLARK http://www.kathrynclark.com/
+* KATHRYN CLARK http://www.kathrynclark.com
+* Ekta Kaul Art https://www.instagram.com/ekta_kaul/
+* Les doigts pleins d'encre https://www.instagram.com/lesdoigtspleindencre/
+* Adela | hand-embroidery https://www.instagram.com/partblue.embroidery/
+* Jennifer Collier https://www.instagram.com/paperjennifer/
 
 ### Games
 
@@ -114,8 +118,9 @@
 ### Globes
 
 * Pyro Globes http://www.pyro.global
-* Bellerby & Co. globemakers https://bellerbyandco.com/
-* JULIA FORTE globemakerhttps://www.juliaforteglobes.com/
+* Bellerby & Co. globemakers https://bellerbyandco.com
+* JULIA FORTE globemakerhttps://www.juliaforteglobes.com
+* Globe Sauter & Cie http://www.globesauter.fr
 
 ## Credits:
 
