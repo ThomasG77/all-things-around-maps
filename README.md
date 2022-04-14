@@ -64,6 +64,7 @@
 * Maps in the Wild https://mappery.org/
 * Dan Bell https://linktr.ee/middleearthsmaps
 * GeoCoe — Geography-inspired art — Lidar, rivers, volcanoes, maps, and travel! https://dancoecarto.com (shop at https://society6.com/geocoe/prints)
+* Elisabeth Lecourt - "Les Robes Géographiques" https://elisabethlecourt.com
 
 ### Artistic maps
 
