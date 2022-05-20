@@ -101,6 +101,7 @@
 * Tiffany Chung http://www.trfineart.com/artist/tiffany-chung/#artist-works
 * Dave Draws https://davedraws.co.uk/pages/portfolio
 * Julien Dupont Kobri https://kartokobri.wordpress.com/
+* Marine Le Breton - Les Cartes Marines https://www.etsy.com/fr/shop/lescartesmarines
 
 ### Knitting, embroidery
 
