@@ -102,6 +102,9 @@
 * Dave Draws https://davedraws.co.uk/pages/portfolio
 * Julien Dupont Kobri https://kartokobri.wordpress.com/
 * Marine Le Breton - Les Cartes Marines https://www.etsy.com/fr/shop/lescartesmarines
+* Annie Lunardi https://www.alunardi.fr/dessins
+* Marc Limousin http://www.marclimousin.com/artiste-plasticien/peintre-la-nuit-ailleurs-le-jour/peinture/atlas-des-libres-cours-%e2%86%92-2018/
+* Mathias Poisson http://poissom.free.fr/?browse=dessins%20d%27Alg%E9rie
 
 ### Knitting, embroidery
 
