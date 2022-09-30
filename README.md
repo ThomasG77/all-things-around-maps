@@ -65,6 +65,7 @@
 * Dan Bell https://linktr.ee/middleearthsmaps
 * GeoCoe — Geography-inspired art — Lidar, rivers, volcanoes, maps, and travel! https://dancoecarto.com (shop at https://society6.com/geocoe/prints)
 * Elisabeth Lecourt - "Les Robes Géographiques" https://elisabethlecourt.com
+* Robert szucs https://www.grasshoppergeography.com/collections/all
 
 ### Artistic maps
 
