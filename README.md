@@ -66,6 +66,7 @@
 * GeoCoe — Geography-inspired art — Lidar, rivers, volcanoes, maps, and travel! https://dancoecarto.com (shop at https://society6.com/geocoe/prints)
 * Elisabeth Lecourt - "Les Robes Géographiques" https://elisabethlecourt.com
 * Robert szucs https://www.grasshoppergeography.com/collections/all
+* Jeffrey Linn "Conspiracy of Cartographers - Maps of a future Earth" https://conspiracyofcartographers.com
 
 ### Artistic maps
 
