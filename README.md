@@ -67,6 +67,7 @@
 * Elisabeth Lecourt - "Les Robes Géographiques" https://elisabethlecourt.com
 * Robert szucs https://www.grasshoppergeography.com/collections/all
 * Jeffrey Linn "Conspiracy of Cartographers - Maps of a future Earth" https://conspiracyofcartographers.com
+* Alexis Carlier - Drawing maps of cities - https://www.etsy.com/fr/shop/Alcatela
 
 ### Artistic maps
 
