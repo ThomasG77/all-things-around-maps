@@ -109,7 +109,7 @@
 * Marc Limousin http://www.marclimousin.com/artiste-plasticien/peintre-la-nuit-ailleurs-le-jour/peinture/atlas-des-libres-cours-%e2%86%92-2018/
 * Mathias Poisson http://poissom.free.fr/?browse=dessins%20d%27Alg%E9rie
 * Julien Jaffré https://julienjaffre.wixsite.com/carolina-et-ruliano/copie-de-news-1
-* Elisa Grilli di Cortona art https://www.elisagrilli.com/cartes-marines.html, https://www.elisagrilli.com/cartes-aronautiques.html, https://www.elisagrilli.com/collages.html
+* Elisa Grilli di Cortona art https://www.elisagrilli.com/#galerie
 
 ### Knitting, embroidery
 
