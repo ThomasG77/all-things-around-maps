@@ -110,6 +110,7 @@
 * Mathias Poisson http://poissom.free.fr/?browse=dessins%20d%27Alg%E9rie
 * Julien Jaffré https://julienjaffre.wixsite.com/carolina-et-ruliano/copie-de-news-1
 * Elisa Grilli di Cortona art https://www.elisagrilli.com/#galerie
+* Sophie LADAME https://www.alamarge-galerie.fr/sophie-ladame-2/
 
 ### Knitting, embroidery
 
