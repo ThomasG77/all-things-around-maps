@@ -133,6 +133,10 @@
 * JULIA FORTE globemakerhttps://www.juliaforteglobes.com
 * Globe Sauter & Cie http://www.globesauter.fr
 
+### Sculpture, pottery
+
+* Loraine Rutt http://www.lorainerutt.com
+
 ## Credits:
 
 1st list established from https://docs.google.com/document/d/e/2PACX-1vR_mOYhFpeNotAGuiJMvSWUsyfwlhIjlmhR7Zdkfw9orLWncqh_CogGetDV_sr7vxgwe-EngYLFt5XL/pub
