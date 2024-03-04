@@ -111,6 +111,7 @@
 * Julien Jaffré https://julienjaffre.wixsite.com/carolina-et-ruliano/copie-de-news-1
 * Elisa Grilli di Cortona art https://www.elisagrilli.com/#galerie
 * Sophie LADAME https://www.alamarge-galerie.fr/sophie-ladame-2/
+* Jenny Odell https://www.jennyodell.com/projects.html (not directtly maps but excerpt from satellites view, see in particular projects "Satellite Collections" and "Satellite Landscapes")
 
 ### Knitting, embroidery
 
