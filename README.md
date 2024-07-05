@@ -134,6 +134,7 @@
 * Bellerby & Co. globemakers https://bellerbyandco.com
 * JULIA FORTE globemakerhttps://www.juliaforteglobes.com
 * Globe Sauter & Cie http://www.globesauter.fr
+* COLUMBUS Globes https://columbus-verlag.de/en
 
 ### Sculpture, pottery
 
